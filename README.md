@@ -8,7 +8,7 @@
 
 🧑🏻 I'm 20 years old and I come from Gia Lam, Hanoi
 
-🎓 I'm currently is a 2nd years student at FPT Polytechnic - Hanoi
+🎓 I'm currently is a 3nd years student at HAUI - Hanoi
 
 🔭 I have a passion for backend and maybe frontend =)
 
