@@ -6,7 +6,7 @@
 
 🌱 My name is Vu Van Tho
 
-🧑🏻 I'm 20 years old and I come from Gia Lam, Hanoi
+🧑🏻 I'm 22 years old and I come from Gia Lam, Hanoi
 
 🎓 I'm currently is a 3nd years student at HAUI - Hanoi
 
